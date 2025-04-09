@@ -1,2 +1,2 @@
 # endy229.github.io
-Established in 1985, Hideout Corporation specialises in 
+Established in 1985, Hideout Corporation specialises in research of the concept of the multiverse and interdimensional travel with one of the goals being the discovery of new technologies that could benefit everyone and making it widely available! To achieve that, Hideout Co. had partnered with various corporations and companies across the many universes, allowing us to not only discover new technologies, but also share them.
